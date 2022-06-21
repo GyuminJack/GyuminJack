@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @GyuminJack
-- 👀 [More About ME](https://jackgyumin.notion.site/Jack-c72c30d6e79d419285affcabb70382f9)
 
 
 <!---
